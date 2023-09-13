@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Con7484
 - 👀 I’m interested in games ig
 - 🌱 I’m currently learning nothing at the moment
-- 💞️ I’m looking to collaborate on idk if you want me in some contact me
+- 💞️ I’m looking to collaborate idk if you want me in something contact me
 - 📫 How to reach me @porterm10 on ig its a fox pfp and on discord ConicalNebula84#7174
 
 <!---
